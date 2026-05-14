@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with automatic Polymarket Addon | API-integration + portfolio-optimization, the #1 addon. Includes API-integration and portfolio-optimization for a
 
 
 
